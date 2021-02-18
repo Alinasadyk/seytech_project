@@ -1,0 +1,1 @@
+# seytech_project
